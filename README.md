@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @phoenix7-perryville
+- 👀 I’m interested in building robotic syst
+- 📫 contact me phoenix7@xpost.plala.or.jp
